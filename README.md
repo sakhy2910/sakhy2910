@@ -1,0 +1,6 @@
+- 👋 Hi, I’m saketha 
+- 👀 I’m interested in learning new things and i enjoy journaling.
+- 🌱 I’m currently learning new programming languges and writing,yoga and more
+- 💞️ I’m looking to collaborate any health company where i can work on managing electronic health records n understand the patterns of data.
+- 📫 How to reach me @saketha.vallabhaneni@gmail.com
+- 😄 Pronouns: she
